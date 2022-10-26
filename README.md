@@ -4,8 +4,6 @@ Well known premium domain name is available for instantly purchase. Invest in a 
 
 All the existing digital ecosystem is included. Price negotiation is available.
 
-Estimated Value: ***$54 436.49***
-
 Buy domain [`hrtechweekly.com`](https://hrtechweekly.com/) in a trusted [`domain store`](https://www.nic.ru/en/shop/lot/hrtechweekly.com/)!
 
 ## About
