@@ -30,9 +30,9 @@ The HR Tech Weekly® is repeatedly listed amongst industry leaders and influence
 
   - **Future of Work: Top 100 Influencers and Brands**
   
-  Globally recognized brand is the best way to make sure your customers and search engines find you first.
+Globally recognized brand is the best way to make sure your customers and search engines find you first.
   
-  ## Domain Price
+## Domain Price
   
 Top tier [`domain store`](https://www.nic.ru/en/shop/lot/hrtechweekly.com/) guarantees that the seller receives funds for the sold domain name and the buyer — rights to the purchased domain.
   
